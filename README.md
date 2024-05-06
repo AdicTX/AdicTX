@@ -16,7 +16,6 @@
 
 - Si estás buscando un desarrollador Full Stack comprometido, trabajador y apasionado, no dudes en ponerte en contacto conmigo. Me encantaría tener la oportunidad de trabajar contigo y ayudarte a llevar tus proyectos al siguiente nivel.💥💯  
   
-- ¡Gracias por visitar mi perfil! Puedes encontrarme en fedealdama@hotmail.com, o a travéz de mi teléfono +595981813716.
 <br/>  
 
 
